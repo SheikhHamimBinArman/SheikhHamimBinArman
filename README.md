@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SheikhHamimBinArman
+- 👀 I’m currently working full time with a group of talented people at SEBPO Ltd.
+- 🌱 I’m currently learning the digital advertising tools.
+- 🌱 I have skills working on Amazon Workspaces, Google Ad Manager and other Social Media Ad Manager tools.
+- 💞️ I love to work with team.
